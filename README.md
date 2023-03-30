@@ -1,1 +1,0 @@
-# qamar23-DariaVerbovska
